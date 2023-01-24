@@ -48,13 +48,16 @@ und Erziehung (ICEC).* Abgerufen am 1. Dezember 2022, von
 ## Literatur
 
 Carr, M., May, H., Reedy, T. & Reedy, T. (2017). *Te Whāriki - He
-whāriki mātauranga mō ngā mokopuna o Aotearoa -- Early childhood
-curriculum (2. Auflage).* MINISTRY OF EDUCATION -- TE TĀHUHU O TE
+whāriki mātauranga mō ngā mokopuna o Aotearoa - Early childhood
+curriculum (2. Auflage).* MINISTRY OF EDUCATION - TE TĀHUHU O TE
 MĀTAURANGA
 
 Carr, M. & Rameka, L. (2005). Ein Curriculumfür die frühe Kindheit
 »weben«. *KINDER in Europa - Bildungspläne und Evaluation in der frühen
 Kindheit. Ausgabe 9 11/2005,* S. 8, 9
+
+Ministerium für Arbeit und Soziales des Landes Sachsen-Anhalt (2013). *Bildungsprogramm für Kindertageseinrichtungen in Sachsen-Anhalt
+Bildung: elementar – Bildung von Anfang an.* verlag das netz, Weimar, Berlin
 
 Seibel, B. (2006). Aufwachsen mit „Te Whariki". *kindergarten heute,
 05/2006,* S. 6-15
