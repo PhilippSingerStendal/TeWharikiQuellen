@@ -62,7 +62,7 @@ Bildung: elementar – Bildung von Anfang an.* verlag das netz, Weimar, Berlin
 Seibel, B. (2006). Aufwachsen mit „Te Whariki". *kindergarten heute,
 05/2006,* S. 6-15
 
-## Bildquellen
+## Abbildungen
 
 Hesmer, K. (1992). *Flaggen und Wappen der Welt. Geschichte und Symbolik
 der Flaggen und Wappen aller Staaten*. Bertelsmann Lexikon Verlag,
