@@ -79,7 +79,7 @@ MĀTAURANGA. Abgerufen am 01. Januar 2023, von
 (Muster-Grafik auf Plakat)
 
 Knauf, H. (2018). Bildungsdokumentation: Formen und Stile in der
-pädagogischen Praxis. *link.springer.com. *Abgerufen am 01. Januar 2023,
+pädagogischen Praxis. *link.springer.com.* Abgerufen am 01. Januar 2023,
 von
 [https://media.springernature.com/lw685/springer-static/image/chp%3A10.1007%2F978-3-658-24101-8_3/Media[]{#anchor-2}[]{#anchor-3}Objects/463041_1\_De_3\_Fig10_HTML.png](https://media.springernature.com/lw685/springer-static/image/chp%3A10.1007%2F978-3-658-24101-8_3/MediaObjects/463041_1_De_3_Fig10_HTML.png)
 (Grafik Ziele und Prinzipien)
