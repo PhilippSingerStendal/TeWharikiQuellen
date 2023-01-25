@@ -87,7 +87,7 @@ Knauf, H. (2018). Bildungsdokumentation: Formen und Stile in der
 pädagogischen Praxis. *link.springer.com.* Abgerufen am 01. Januar 2023,
 von
 [https://media.springernature.com/lw685/springer-static/image/chp%3A10.1007%2F978-3-658-24101-8_3/Media[]{#anchor-2}[]{#anchor-3}Objects/463041_1\_De_3\_Fig10_HTML.png](https://media.springernature.com/lw685/springer-static/image/chp%3A10.1007%2F978-3-658-24101-8_3/MediaObjects/463041_1_De_3_Fig10_HTML.png)
-(Grafik Ziele und Prinzipien)
+(Abbildung 1: Ziele und Prinzipien Te Whārikis)
 
 NZCER (2016). Helen May. *Helen May.* Abgerufen am 02. Januar 2023, von https://www.nzcer.org.nz/helen-may (Foto von Helen May)
 
