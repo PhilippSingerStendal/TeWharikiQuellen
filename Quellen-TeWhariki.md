@@ -64,16 +64,6 @@ Seibel, B. (2006). Aufwachsen mit „Te Whariki". *kindergarten heute,
 
 ## Abbildungen
 
-Hesmer, K. (1992). *Flaggen und Wappen der Welt. Geschichte und Symbolik
-der Flaggen und Wappen aller Staaten*. Bertelsmann Lexikon Verlag,
-Gütersloh (Wappen Aotearoas)
-
-Hakan (2022). Landkarte Neuseeland, NZ Karte, Schwarz-Weiß Detaillierte
-Solid Outline Land Neuseeland Karte, Instant Digital Download svg png
-eps ai. *etsy.com. *Abgerufen am 11. Januar 2023, von
-[https://www.etsy.com/de/listing/1238308880/landkarte-neuseeland-nz-karte-schwarz?gpla=1&gao=1&&utm_source=google&utm_medium=cpc&utm_campaign=shopping_de_de_de_e-art_and_collectibles-prints-digital_prints&utm_custo[]{#anchor}[]{#anchor-1}m1=\_k_Cj0KCQiA8aOeBhCWARIsANRFrQFBs6R_Ob3ZmR7ayM06g1Zj57BrQC7dhNA_jKeApEGB0IVKsIfzYe4aAl-QEALw_wcB_k\_&utm_content=go_316422529_18240491569_63996090049_aud-1185880389068:pla-106555091555_c\_\_1238308880dede_582943151&utm_custom2=316422529&gclid=Cj0KCQiA8aOeBhCWARIsANRFrQFBs6R_Ob3ZmR7ayM06g1Zj57BrQC7dhNA_jKeApEGB0IVKsIfzYe4aAl-QEALw_wcB](https://www.etsy.com/de/listing/1238308880/landkarte-neuseeland-nz-karte-schwarz?gpla=1&gao=1&&utm_source=google&utm_medium=cpc&utm_campaign=shopping_de_de_de_e-art_and_collectibles-prints-digital_prints&utm_custom1=_k_Cj0KCQiA8aOeBhCWARIsANRFrQFBs6R_Ob3ZmR7ayM06g1Zj57BrQC7dhNA_jKeApEGB0IVKsIfzYe4aAl-QEALw_wcB_k_&utm_content=go_316422529_18240491569_63996090049_aud-1185880389068:pla-106555091555_c__1238308880dede_582943151&utm_custom2=316422529&gclid=Cj0KCQiA8aOeBhCWARIsANRFrQFBs6R_Ob3ZmR7ayM06g1Zj57BrQC7dhNA_jKeApEGB0IVKsIfzYe4aAl-QEALw_wcB)
-(Karte Aotearoas)
-
 Carr, M., May, H., Reedy, T. & Reedy, T. (2017). *Te Whāriki -- He
 whāriki mātauranga mō ngā mokopuna o Aotearoa -- Early childhood
 curriculum *(2. Auflage). MINISTRY OF EDUCATION -- TE TĀHUHU O TE
@@ -81,11 +71,29 @@ MĀTAURANGA. Abgerufen am 01. Januar 2023, von
 <https://tewhariki.tki.org.nz/en/key-documents/te-whariki-2017/>
 (Muster-Grafik auf Plakat)
 
+Cattanach, C. (2014). Professor Sir Tamati Reedy. *Lady Tilly and Professor Sir Tamati Reedy.* Abgerufen am 02. Januar 2023, von https://www.facebook.com/photo?fbid=890884804265478&set=a.890884770932148 (Foto von Tamati Reedy)
+
+Cattanach, C. (2014). Lady Tilly Reedy. *Lady Tilly and Professor Sir Tamati Reedy.* Abgerufen am 02. Januar 2023, von https://www.facebook.com/photo?fbid=890884820932143&set=a.890884770932148 (Foto von Tilly Reedy)
+
+Hakan (2022). Landkarte Neuseeland, NZ Karte, Schwarz-Weiß Detaillierte
+Solid Outline Land Neuseeland Karte, Instant Digital Download svg png
+eps ai. *etsy.com. *Abgerufen am 11. Januar 2023, von
+[https://www.etsy.com/de/listing/1238308880/landkarte-neuseeland-nz-karte-schwarz?gpla=1&gao=1&&utm_source=google&utm_medium=cpc&utm_campaign=shopping_de_de_de_e-art_and_collectibles-prints-digital_prints&utm_custo[]{#anchor}[]{#anchor-1}m1=\_k_Cj0KCQiA8aOeBhCWARIsANRFrQFBs6R_Ob3ZmR7ayM06g1Zj57BrQC7dhNA_jKeApEGB0IVKsIfzYe4aAl-QEALw_wcB_k\_&utm_content=go_316422529_18240491569_63996090049_aud-1185880389068:pla-106555091555_c\_\_1238308880dede_582943151&utm_custom2=316422529&gclid=Cj0KCQiA8aOeBhCWARIsANRFrQFBs6R_Ob3ZmR7ayM06g1Zj57BrQC7dhNA_jKeApEGB0IVKsIfzYe4aAl-QEALw_wcB](https://www.etsy.com/de/listing/1238308880/landkarte-neuseeland-nz-karte-schwarz?gpla=1&gao=1&&utm_source=google&utm_medium=cpc&utm_campaign=shopping_de_de_de_e-art_and_collectibles-prints-digital_prints&utm_custom1=_k_Cj0KCQiA8aOeBhCWARIsANRFrQFBs6R_Ob3ZmR7ayM06g1Zj57BrQC7dhNA_jKeApEGB0IVKsIfzYe4aAl-QEALw_wcB_k_&utm_content=go_316422529_18240491569_63996090049_aud-1185880389068:pla-106555091555_c__1238308880dede_582943151&utm_custom2=316422529&gclid=Cj0KCQiA8aOeBhCWARIsANRFrQFBs6R_Ob3ZmR7ayM06g1Zj57BrQC7dhNA_jKeApEGB0IVKsIfzYe4aAl-QEALw_wcB)
+(Karte Aotearoas)
+
+Hochschule Magdeburg Stendal (2011). Logo HS MD-SDL. *wikipedia.org.* Abgerufen am 11. Dezember 2023, von https://de.wikipedia.org/wiki/Datei:Logo_HS_MD-SDL.svg (Logo Hochschule Magedburg Stendal)
+
 Knauf, H. (2018). Bildungsdokumentation: Formen und Stile in der
 pädagogischen Praxis. *link.springer.com.* Abgerufen am 01. Januar 2023,
 von
 [https://media.springernature.com/lw685/springer-static/image/chp%3A10.1007%2F978-3-658-24101-8_3/Media[]{#anchor-2}[]{#anchor-3}Objects/463041_1\_De_3\_Fig10_HTML.png](https://media.springernature.com/lw685/springer-static/image/chp%3A10.1007%2F978-3-658-24101-8_3/MediaObjects/463041_1_De_3_Fig10_HTML.png)
 (Grafik Ziele und Prinzipien)
+
+NZCER (2016). Helen May. *Helen May.* Abgerufen am 02. Januar 2023, von https://www.nzcer.org.nz/helen-may (Foto von Helen May)
+
+Sodacan (2009). Coat of arms of New Zealand. *wikipedia.org.* Abgerufen am 02. Januar 2023, von https://de.m.wikipedia.org/wiki/Datei:Coat_of_arms_of_New_Zealand.svg (Wappen Aotearoas)
+
+The University of Waikato - Te Whare Wānanga o Waikato (2018). New Emeritus Professors Margaret Carr, Terry Locke and Janis Swan. *Long and successful careers acknowledged.* Abgerufen am 02. Januar 2023, von https://www.waikato.ac.nz/news-opinion/media/2018/long-and-successful-careers-acknowledged (Foto von Margaret Carr)
 
 ## Das könnte euch interessieren
 
