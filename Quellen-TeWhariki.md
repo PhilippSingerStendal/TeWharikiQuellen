@@ -2,13 +2,16 @@
 
 ## Internet
 
+careersnz (2021), A day in the life of an Early Childhood Teacher. *youtube.com/@careersnz.* Abgerufen am 20. Januar 2023, von 
+https://www.youtube.com/@careersnz
+
 Carr, M., Lee, W. & Soutar, B. (2012). Te Whāriki, Early Childhood
 Education Curriculum - New Zealand. *geteduca.com.* Abgerufen am 11.
 November 2022, von
 <https://www.geteduca.com/frameworks/te-whariki-ece-curriculum-new-zealand/>
 
 Dalli, C. (2015). Lehrer für die Frühpädagogik in Neuseeland. *Kinder in
-Europa* *(15/08). verlag das netz.* Abgerufen 22.01.2023
+Europa* *(15/08). verlag das netz.* Abgerufen am 22. Januar 2023
 <https://www.betrifftkinder.eu/zeitschrift/kinder-in-europa/ke-1508/401-lehrer-fuer-die-fruehpaedagogik-in-neuseeland.html>
 
 Daubenmerkl, B. (2019). DAS FRÜHPÄDAGOGISCHE KONZEPT TE WHARIKI.
