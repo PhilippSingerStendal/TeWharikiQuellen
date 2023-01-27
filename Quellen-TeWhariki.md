@@ -131,3 +131,5 @@ Knackig knappe Eltern-Broschüre zu Te Whāriki:
 seine kulturelle Herkunft anerkennt und erwidert."
 
 „Wir sehen das Kind, nicht die Behinderung."
+
+„I come not with my own strenghts but bring with me the gifts, talents and strenghts of my family, tribe and ancestors.”
